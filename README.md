@@ -1,4 +1,4 @@
-# 10x-Weight-Loss
+# 10x-Weight-Loss Humans
 4 x Patients with 6 Week Weight Loss 
 
 ## Description
